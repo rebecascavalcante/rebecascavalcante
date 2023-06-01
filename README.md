@@ -7,3 +7,4 @@
 - 📫 How to reach me: rebecasilvac18@hotmail.com
 
 - 📌 I'm currently working at 4T Soluções 
+s
